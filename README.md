@@ -16,12 +16,12 @@ The group's name "Stray Kids" was not defined by JYP Entertainment but conceptua
 
 Introduced in January 2016, the group currently consists of 26 members divided into six different sub-units: NCT U, NCT 127, NCT Dream, WayV, NCT DoJaeJung, and NCT New Team.[3] They are notable for their versatility in music, vocal and rap abilities, and powerful performances, and have been cited as K-pop's "most experimental boy band" due to their concept of having limitless members.[4] As of May 2023, NCT has recorded more than 32 million[b] album sales across all sub-units, making them the best-selling act under SM Entertainment and one of the best-selling K-pop artists of all-time.
 
-### Enhypen 
+### Enhypen
  ![K-drama](https://imageio.forbes.com/specials-images/imageserve/60de2e927acea5429b9b52b3/0x0.jpg?format=jpg&crop=1998,1333,x1,y0,safe&height=900&width=1600&fit=bounds)
 
 The name Enhypen was introduced during the live broadcast of the final episode of I-Land. Etymologically, the group derives their name from the hyphen symbol (-), representing "Connection, Discovery, & Growth". Similar to how a hyphen connects different words to create new meanings, Enhypen aims "to come together to connect, discover and grow together to form a new act".
 
-### The boyz
+### The Boyz
  ![K-drama](https://i.scdn.co/image/ab6761610000e5eb771aebd54ce149b97c0bb971)
 In the special 'Zeneration Encore' version, The Boyz perform on stage at their second world tour. "Dear." is a special pre-release for fans from their upcoming 2nd full album 'Phantasy Pt.3 Love Letter'. Members Sangyeon, Younghoon, New, Q, and Eric participated in the lyrics, expressing their grateful hearts to their fans, The B., and the track is meant as a special winter gift to fans on The Boyz' 6th debut anniversary.
 
